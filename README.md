@@ -6,13 +6,16 @@ Name of Authors:
    Marine & Coastal Survey Division, 
    Geological Survey of India, Mangalore, 
    Karnataka, India – 575001.
+   email:rachna.pillai2007@gmail.com
 2. Nisha N.V.
    Senior Geologist
    Marine & Coastal Survey Division, 
    Geological Survey of India, Mangalore, 
    Karnataka, India – 575001.
+   email:nishakoppal@gmail.com
 3. A. C. Dinesh
    Director
    Marine & Coastal Survey Division, 
    Geological Survey of India, Mangalore, 
    Karnataka, India – 575001.
+   email:acdinesh@rediffmail.com
